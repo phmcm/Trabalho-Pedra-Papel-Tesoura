@@ -1,1 +1,0 @@
-# Trabalho-Pedra-Papel-Tesoura
